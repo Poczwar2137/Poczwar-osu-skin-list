@@ -1,14 +1,14 @@
 # [Poczwar's](https://osu.ppy.sh/users/187500029) skins
 
-# [Aristia idke trail edited hs](https://www.mediafire.com/file/35kruu5a6o1iozm/aristia_edit_trail_clap.osk/file)
+# [Aristia idke trail edited hs](https://cdn.discordapp.com/attachments/899993331382255647/1126222621525155850/aristia_edit_trail_clap.osk)
 
 ![image](https://jakistypzneta.s-ul.eu/dUTfpTzZ)
 
-# [azerino stare](https://www.mediafire.com/file/yjbk2j3z506t5p1/azerino_stare.osk/file)
+# [azerino stare](https://cdn.discordapp.com/attachments/899993331382255647/1126222552969256990/azerino_stare.osk)
 
 ![image](https://jakistypzneta.s-ul.eu/jjvHt1zE)
 
-# [YUGEN LONGTRAIL BUBBLE](https://www.mediafire.com/file/p2kghi3lstx32j3/-_YUGEN_LONGTRAIL_BUBBLE_-.osk/file)
+# [YUGEN LONGTRAIL BUBBLE](https://cdn.discordapp.com/attachments/899993331382255647/1126222474258948246/-_YUGEN_LONGTRAIL_BUBBLE_-.osk)
 
 ![image](https://jakistypzneta.s-ul.eu/jUyebTlN)
 
@@ -16,7 +16,7 @@
 
 ![image](https://camo.githubusercontent.com/d5b86872e80bee68a02ee6a4e6e50f4e44fa756669f07fa7017929a09dbc6440/68747470733a2f2f692e696d6775722e636f6d2f574f69397377772e706e67)
 
-# [Blueberry Ekoro edit](https://mega.nz/file/3z413YDL#3QLKXLZ6NJ_IblU7xTOJWTe0hw76uRUs2R5EyupNL0c)
+# [Blueberry Ekoro edit](https://cdn.discordapp.com/attachments/899993331382255647/1126222338279616512/Blueberry.osk)
 
 ![image](https://jakistypzneta.s-ul.eu/I32k5C1S)
 
@@ -28,7 +28,7 @@
 
 ![image](https://circle-people.com/wp-content/Skins/informous/informous%202019-01-03.osk.jpg)
 
-# [minomalist_EZ_cheaterskin (play with lowest gamma)](https://www.mediafire.com/file/91xfb615smhxq0b/minomalist_EZ_cheaterskin.osk/file)
+# [minomalist_EZ_cheaterskin (play with lowest gamma)](https://cdn.discordapp.com/attachments/899993331382255647/1126222735228539091/minomalist_EZ_cheaterskin.osk)
 
 ![image](https://jakistypzneta.s-ul.eu/IIXsSWFi)
 
@@ -52,7 +52,7 @@
 
 ![image](https://osu.ppy.sh/ss/18684987/91a4)
 
-# [rafis hddt 2018](https://www.mediafire.com/file/dlxc1von8a1hhfs/Rafis_HDDT_2018.osk/file)
+# [rafis hddt 2018](https://cdn.discordapp.com/attachments/899993331382255647/1126223198099341342/Rafis_HDDT_2018.osk)
 
 ![image](https://skimg.osuck.net/562f42b4af68706e5a6d079fc627937d.webp)
 
